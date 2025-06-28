@@ -12,5 +12,5 @@ Career Objective: Currently seeking new opportunities focused on Supply Chain An
 
 Contact
 I'm open to networking and exploring potential roles:
-Email: tontheson@gmail.com
-LinkedIn: [Ton The Son](https://www.linkedin.com/in/tontheson/)
+- Email: tontheson@gmail.com
+- LinkedIn: [Ton The Son](https://www.linkedin.com/in/tontheson/)
